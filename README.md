@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bigbuster153
-- 👀 I’m interested in anything computers, cars and gaming related
+- 👀 I’m interested in anything computers, cars and anything gaming related
 - 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on any projects that pique my interest
 
